@@ -1,2 +1,2 @@
 # belajar-kolaborasi
-rubah 21
+rubah rubah
